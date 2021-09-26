@@ -1,4 +1,4 @@
-- 👋 Hi, I’m **I Itself 🤣**
+- 👋 Hi, I’m **Me Itself 🤣**
 - 👀 I’m interested in **Making Someone Fool 🤣**
 - 🌱 I’m currently learning **MBBS 🤣**
 - 💞️ I’m looking to collaborate on **Fuckers 🤣**
